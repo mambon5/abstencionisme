@@ -1,3 +1,0 @@
-# abstencionisme
-
-yo
